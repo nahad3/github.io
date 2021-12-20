@@ -5,4 +5,4 @@ I am a Ph.D. student in the [School of Electrical and Computer Engineering](http
 
 
 
-More details on my research can be found at my [Google scholar](https://scholar.google.com/citations?hl=en&user=Z-UiPTQAAAAJ) page.
+More details on my research can be found at my [Google Scholar](https://scholar.google.com/citations?hl=en&user=Z-UiPTQAAAAJ) page.
